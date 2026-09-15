@@ -223,3 +223,6 @@ A Sirius Game is available as a full free version with all features and updates 
 - 💬 **[Community](https://www.softyne.com/about-us/)**
 
 Ready to embark on your adventure? **Download A Sirius Game now and become the ultimate captain!**
+
+---
+**Last updated:** 2026-09-15 12:56:23 UTC
